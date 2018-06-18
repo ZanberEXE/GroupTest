@@ -1,2 +1,2 @@
 zweite Testdatei
-Wie geht's wie steht's?
+Ich brauch eigentlich keine Hilfe
